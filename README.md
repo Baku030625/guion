@@ -1,5 +1,9 @@
 # Usuario: Sochi_Vale
 ## Nivel de Juego: Intermedio
+### Equipo Actual:
+* Telefono: IPhone 14 Pro.
+* Audifonos: Ultrapods Pro.
+  
 ### Juegos Recurrentes:  
 * **_CALL OF DUTY_**
 * **_ROBLOX_**
@@ -8,18 +12,19 @@
 -------
 # FREE FIRE:
 #### User: ꧁Sofia꧂
-#### Rango:Diamante II 
+#### Rango:Diamante III
 >"El campo de Batalla No Perdona..."
 -------
 # ROBLOX:
-#### UserName:
-#### Conexiones:
-####
-> "Juegos Recurrentes"
+#### UserName: Sochi2001vale.
+#### Conexiones: 1
+#### Juegos Recurrentes: 
+* Sobrevivientes al apocalipsis.
+* Escapa de la prision de Barry.
+> "Juego para ganar, no para participal"
 
 -------
 # CALL OF DUTY:
-#### User:
-#### Nivel:
-#### Arma Favorita:
+#### User: Sophi2011.
+#### Nivel: Aprendiz.
 >"Precision, Disciplina y Dominio Total.
