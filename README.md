@@ -7,8 +7,8 @@
 
 -------
 # FREE FIRE:
-#### User: 
-#### Rango:
+#### User: ꧁Sofia꧂
+#### Rango:Diamante II 
 >"El campo de Batalla No Perdona..."
 -------
 # ROBLOX:
